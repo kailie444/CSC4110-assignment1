@@ -1,18 +1,2 @@
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
-# CSC4110-assignment1
+Kailie Peterson
+hd0680
